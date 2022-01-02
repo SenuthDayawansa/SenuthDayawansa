@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me;
-Web-site- https://senuth-dayawansa.000webhostapp.com/
+Web-site- https://senuth-dayawansa.000webhostapp.com/ (bit.ly/senuthdayawansa)
 Twitter-
 YouTube- https://www.youtube.com/channel/UCbTOYL4kHw-LHyfaNNjMMKw
 <!---
