@@ -2,4 +2,4 @@
 - 👀 I’m interested in Electronic / Programming
 - 🌱 I’m currently learning Electronic and Programming
 - 📫 How to reach me; http://senuth-dayawansa.000webhostapp.com/ or contact.senuthdayawansa@gmail.com
--  <!--💞️ I’m looking to collaborate on ...-->
+- <!--💞️ I’m looking to collaborate on ...-->
